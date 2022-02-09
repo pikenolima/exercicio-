@@ -1,0 +1,2 @@
+# exercicio-
+analisando meu notebook
